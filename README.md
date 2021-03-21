@@ -1,0 +1,5 @@
+- Hi, I’m @AmatsuKitsune-Miku!
+- I’m interested in learning to code and making my own projects.
+- I’m currently learning Python, JavaScript, and HTML.
+- I’m looking to collaborate on anything.
+- How to reach me: you can email me mikumewmew@outlook.com
