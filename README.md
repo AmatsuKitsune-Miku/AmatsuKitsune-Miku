@@ -3,3 +3,4 @@
 - I’m currently learning Python and HTML.
 - I’m looking to collaborate on anything.
 - How to reach me: you can email me mikumewmew@outlook.com
+- My pronouns are she/they. If you wanna get special, you can also use it/fae/nya/ae.
